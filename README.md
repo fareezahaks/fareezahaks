@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fareezahaks
-- 👀 I’m interested in the field of health psychology
+- 👀 I’m interested in the field of health and wellbeing in the field of health psychology and public health
 - 🌱 I’m currently leanring and building my skills in R
 - 💞️ I’m looking to collaborate and work on projects related to field of health and wellbeing
 - 📫 How to reach me https://www.linkedin.com/in/fareezahaks/
